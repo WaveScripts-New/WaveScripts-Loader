@@ -1,6 +1,7 @@
 ## **Wave Scripts Reborn**  
-**Ultimate Script Suite for Enhanced Gameplay**  
+**2 in 1 Script Suite for Enhanced Gameplay**  
 *Last Updated:* 26.01.2025 | **Tycoon + Mining Update**
+*Current Scripts In The Script HUB: Trade Scam, Normal Farming Script With Alot Of Features Listed Below. - Made By Ketamine With ❤ | https://discord.gg/JCqTkgs66V
 
 ---
 
